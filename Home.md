@@ -1,8 +1,9 @@
 ### Min Önskelista
 
-<h1 align="center">Bas saker</h1>
+<h1 align="center">Bass stuff</h1>
 
 <p align="center">
+  
 <a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm">Cable</a>
   
 <a href="https://www.thomann.de/be/thomann_e_bass_gigbag_premium.htm">Gigbag</a>
@@ -22,9 +23,10 @@
 </p>
 
 
-<h1 align="center">Information</h1>
+<h1 align="center">Drum stuff</h1>
 
 <p align="center">
+  
 <a href="https://github.com/SexualRhinoceros/MusicBot/wiki/Commands"><img src="http://i.imgur.com/XM9wM2Z.png"></a>
 <a href="https://github.com/SexualRhinoceros/MusicBot/wiki/Configuration"><img src="http://i.imgur.com/lUGD3uG.png"></a>
 <a href="https://github.com/SexualRhinoceros/MusicBot/wiki/Permissions"><img src="http://i.imgur.com/xSwNPI2.png"></a>
