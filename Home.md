@@ -4,13 +4,21 @@
 
 <p align="center">
 <a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm">Cable</a>
+  
 <a href="https://www.thomann.de/be/thomann_e_bass_gigbag_premium.htm">Gigbag</a>
+
 <a href="https://www.thomann.de/be/harley_benton_guitarstrap_suede_black.htm">Bass/Guitar strap (2 if possible. one for bass and one for dad's guitar)</a>
+
 <a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm">Bass strings gauges 45-105</a>
+
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm">Bass/guitar polish</a>
+
 <a href="https://www.thomann.de/be/harley_benton_hb_20b.htm">Bass amp</a>
+
 <a href="https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm">Bass</a>
+
 <a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm">Guitar strings</a>
+
 </p>
 
 
