@@ -1,6 +1,4 @@
-### Min Önskelista
-
-<h1 align="center">Bass stuff</h1>
+<h1 align="center">Wishlist</h1>
 
 <p align="center">
   
@@ -23,7 +21,7 @@
 </p>
 
 
-<h1 align="center">Drum stuff</h1>
+<h1 align="center">Drum Project (not part of wishlist)</h1>
 
 <p align="center">
   
