@@ -2,21 +2,39 @@
 
 <p align="center">
   
-<a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm">1x Harley Benton GC 9 PR Vintage Red Cable</a>
+1x Harley Benton GC 9 PR Vintage Red Cable - 11.90€
+https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm
+
+1x Harley Benton GC 3 PR Vintage - 6.90€
+https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322_2
   
-<a href="https://www.thomann.de/be/thomann_e_bass_gigbag_premium.htm">1x Thomann E-Bass Gigbag Premium</a>
+1x Sandberg Gigbag - 45€
+https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544
 
-<a href="https://www.thomann.de/be/harley_benton_guitarstrap_suede_black.htm">2x Harley Benton suede black Bass/Guitar strap</a>
+1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99
+https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner
 
-<a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm">1x Bass strings gauges 45-105</a>
+1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99
+https://www.amazon.co.uk/gp/product/B01FJ4Z5HY/ref=s9_acsd_hps_bw_c_x_7_w
 
-<a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm">1x Bass/guitar polish</a>
+1x Bass strings gauges 45-105 - 4.99€
+https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm
 
-<a href="https://www.thomann.de/be/harley_benton_hb_20b.htm">1x Harley Benton HB-20B Bass amp</a>
+1x Bass/guitar polish - 1.96€
+https://www.thomann.de/be/harley_benton_hardware_polish.htm
 
-<a href="https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm">1x Harley Benton B-450 QTB Progressive series Bass Guitar</a>
+1x Guitar strings - 2.50€
+https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm
 
-<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm">1x Guitar strings</a>
+1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00
+https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w
+
+1x Harley Benton HB-20B Bass amp - 69€
+https://www.thomann.de/be/harley_benton_hb_20b.htm
+
+1x Harley Benton B-450 QTB Progressive series Bass Guitar - 149€
+https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm
+
 
 </p>
 
