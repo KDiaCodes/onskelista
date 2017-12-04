@@ -16,22 +16,13 @@
 
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
 
-**1x Guitar strings - 2.50€**
+<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm"> **1x Guitar strings - 2.50€**</a> 
 
-https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm
+<a href="https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w"> **1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**</a> 
 
-**1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**
+<a href="https://www.thomann.de/be/harley_benton_hb_20b.htm"> **1x Harley Benton HB-20B Bass amp - 69€**</a> 
 
-https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w
-
-**1x Harley Benton HB-20B Bass amp - 69€**
-
-https://www.thomann.de/be/harley_benton_hb_20b.htm
-
-**1x Harley Benton B-450 QTB Progressive series Bass Guitar - 149€**
-
-https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm
-
+<a href="https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm"> **1x Harley Benton B-450 QTB Progressive series Bass Guitar - 149€**</a> 
 
 </p>
 
