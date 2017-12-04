@@ -10,16 +10,9 @@
 
 <a href="https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner"> **1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99**</a> 
 
+<a href="https://www.amazon.co.uk/gp/product/B01FJ4Z5HY/ref=s9_acsd_hps_bw_c_x_7_w"> **1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99**</a> 
 
-
-
-**1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99**
-
-https://www.amazon.co.uk/gp/product/B01FJ4Z5HY/ref=s9_acsd_hps_bw_c_x_7_w
-
-**1x Bass strings gauges 45-105 - 4.99€**
-
-https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm
+<a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm"> **1x Bass strings gauges 45-105 - 4.99€**</a> 
 
 **1x Bass/guitar polish - 1.96€**
 
