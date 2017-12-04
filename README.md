@@ -14,9 +14,7 @@
 
 <a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm"> **1x Bass strings gauges 45-105 - 4.99€**</a> 
 
-**1x Bass/guitar polish - 1.96€**
-
-https://www.thomann.de/be/harley_benton_hardware_polish.htm
+<a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
 
 **1x Guitar strings - 2.50€**
 
