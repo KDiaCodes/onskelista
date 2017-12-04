@@ -2,21 +2,16 @@
 
 <p align="center">
   
-**1x Harley Benton GC 9 PR Vintage Red Cable - 11.90€**
+<a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm"> **1x Harley Benton GC 9 PR Vintage Red Cable - 11.90€** </a>
 
-https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm
+<a href="https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322_2"> **1x Harley Benton GC 3 PR Vintage - 6.90€**</a>
 
-**1x Harley Benton GC 3 PR Vintage - 6.90€**
+<a href="https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544"> **1x Sandberg Gigbag - 45€**</a> 
 
-https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322_2
-  
-**1x Sandberg Gigbag - 45€**
+<a href="https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner"> **1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99**</a> 
 
-https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544
 
-**1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99**
 
-https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner
 
 **1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99**
 
