@@ -14,35 +14,35 @@ https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322
 
 https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544
 
-**1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99
+**1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99**
 
 https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner
 
-**1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99
+**1x Donner Plexi Sound Mini Guitar Headphone Amp Amplifier with Rechargeable Battery - £13.99**
 
 https://www.amazon.co.uk/gp/product/B01FJ4Z5HY/ref=s9_acsd_hps_bw_c_x_7_w
 
-**1x Bass strings gauges 45-105 - 4.99€
+**1x Bass strings gauges 45-105 - 4.99€**
 
 https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm
 
-**1x Bass/guitar polish - 1.96€
+**1x Bass/guitar polish - 1.96€**
 
 https://www.thomann.de/be/harley_benton_hardware_polish.htm
 
-**1x Guitar strings - 2.50€
+**1x Guitar strings - 2.50€**
 
 https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm
 
-**1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00
+**1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**
 
 https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w
 
-**1x Harley Benton HB-20B Bass amp - 69€
+**1x Harley Benton HB-20B Bass amp - 69€**
 
 https://www.thomann.de/be/harley_benton_hb_20b.htm
 
-**1x Harley Benton B-450 QTB Progressive series Bass Guitar - 149€
+**1x Harley Benton B-450 QTB Progressive series Bass Guitar - 149€**
 
 https://www.thomann.de/be/harley_benton_b_450_qtb_progressive_series.htm
 
