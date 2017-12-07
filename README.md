@@ -1,10 +1,8 @@
 <h1 align="center">Wishlist</h1>
 
 <p align="center">
-  
-<a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm"> **1x Harley Benton GC 9 PR Vintage Red Cable - 11.90€** </a>
 
-<a href="https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322_2"> **1x Harley Benton GC 3 PR Vintage - 6.90€**</a>
+<a href="https://www.amazon.fr/Rayzm-Tressé-Blindé-Guitare-Instrument/dp/B01M0X97RJ/ref=sr_1_3?ie=UTF8&qid=1512663526&sr=8-3&keywords=instrument%2Bcable&th=1"> **1x 3m 1x 5m Rayzm Câble Tressé Blindé 5m pour Guitare/ Guitare Basse, Câble pour Instrument Mono Mâle Coudé 1/4 Inch (6.35mm) Tweed Tissé Bleu -18,50€**</a>
 
 <a href="https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544"> **1x Sandberg Gigbag - 45€**</a> 
 
@@ -16,7 +14,7 @@
 
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
 
-<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm"> **1x Guitar strings - 2.50€**</a> 
+<a href="https://www.amazon.fr/DAddario-guitare-classique-J27H01-première/dp/B000H29I8G/ref=sr_1_37?ie=UTF8&qid=1512664011&sr=8-37&keywords=cordes+de+guitare"> **1x D'Addario Corde d'étude seule en nylon pour guitare classique D'Addario J27H01, Hard, première corde - 0.99€**</a> 
 
 <a href="https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w"> **1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**</a> 
 
