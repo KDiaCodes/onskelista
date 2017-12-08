@@ -2,8 +2,6 @@
 
 <p align="center">
 
-<a href="https://www.amazon.fr/Rayzm-Tressé-Blindé-Guitare-Instrument/dp/B01M0X97RJ/ref=sr_1_3?ie=UTF8&qid=1512663526&sr=8-3&keywords=instrument%2Bcable&th=1"> **1x 3m 1x 5m Rayzm Câble Tressé Blindé 5m pour Guitare/ Guitare Basse, Câble pour Instrument Mono Mâle Coudé 1/4 Inch (6.35mm) Tweed Tissé Bleu -18,50€**</a>
-
 <a href="https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544"> **1x Sandberg Gigbag - 45€**</a> 
 
 <a href="https://www.amazon.co.uk/Donner-DT-1-Guitar-Chromatic-Display/dp/B00MO6KKSK/ref=sr_1_1?ie=UTF8&qid=1512405579&sr=8-1&keywords=Donner+Dt-1+Chromatic+Guitar+Tuner"> **1x Donner DT-1 Guitar Chromatic Auto Pedal Tuner - £15.99**</a> 
