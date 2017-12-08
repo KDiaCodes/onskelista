@@ -8,6 +8,8 @@
 
 <a href="https://www.amazon.co.uk/Rechargeable-Electric-Headphone-Amplifier-Accessory/dp/B00YEG1J9W/ref=pd_sim_267_6?_encoding=UTF8&psc=1&refRID=B82N0NQC84B64CAWH17V"> **1x Andoer Mini Rechargeable Electric Guitar Plug Headphone Amp Amplifier Digital Delay Effect - £14.30**</a> 
 
+<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm"> **1x Guitar strings - 2.50€**</a> 
+
 <a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm"> **1x Bass strings gauges 45-105 - 4.99€**</a> 
 
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
