@@ -1,10 +1,6 @@
 <h1 align="center">Wishlist</h1>
 
 <p align="center">
-  
-<a href="https://www.thomann.de/be/harley_benton_gc_9_pr_vintage_red.htm"> **1x Harley Benton GC 9 PR Vintage Red Cable - 11.90€** </a>
-
-<a href="https://www.thomann.de/be/harley_benton_gc_3_pr.htm?ref=search_rslt_gc+pr_278322_2"> **1x Harley Benton GC 3 PR Vintage - 6.90€**</a>
 
 <a href="https://www.thomann.de/be/sandberg_gigbag.htm?ref=search_rslt_sandberg_281544"> **1x Sandberg Gigbag - 45€**</a> 
 
@@ -12,11 +8,11 @@
 
 <a href="https://www.amazon.co.uk/Rechargeable-Electric-Headphone-Amplifier-Accessory/dp/B00YEG1J9W/ref=pd_sim_267_6?_encoding=UTF8&psc=1&refRID=B82N0NQC84B64CAWH17V"> **1x Andoer Mini Rechargeable Electric Guitar Plug Headphone Amp Amplifier Digital Delay Effect - £14.30**</a> 
 
+<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm"> **1x Guitar strings - 2.50€**</a> 
+
 <a href="https://www.thomann.de/be/harley_benton_valuestrings_bassguitar_medium.htm"> **1x Bass strings gauges 45-105 - 4.99€**</a> 
 
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
-
-<a href="https://www.thomann.de/be/harley_bentonvaluestrings_classical.htm"> **1x Guitar strings - 2.50€**</a> 
 
 <a href="https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w"> **1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**</a> 
 
