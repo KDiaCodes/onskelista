@@ -12,8 +12,6 @@
 
 <a href="https://www.thomann.de/be/harley_benton_hardware_polish.htm"> **1x Bass/guitar polish - 1.96€**</a> 
 
-<a href="https://www.amazon.fr/DAddario-guitare-classique-J27H01-première/dp/B000H29I8G/ref=sr_1_37?ie=UTF8&qid=1512664011&sr=8-37&keywords=cordes+de+guitare"> **1x D'Addario Corde d'étude seule en nylon pour guitare classique D'Addario J27H01, Hard, première corde - 0.99€**</a> 
-
 <a href="https://www.amazon.co.uk/gp/product/B075K74TFN/ref=s9_acsd_hps_bw_c_x_2_w"> **1x Donner Rechargeable Wireless Guitar System DWS-2 Digital Guitar Bass Audio Transmitter Receiver - £59.00**</a> 
 
 <a href="https://www.thomann.de/be/harley_benton_hb_20b.htm"> **1x Harley Benton HB-20B Bass amp - 69€**</a> 
